@@ -1,0 +1,1 @@
+welp, judgement banned me from the discord, no point in gatekeeping these broken files. enjoy, cloudfare + captchas broke it. welp enjoy, no support or anything do whatever with it. skid it, sell it. fuck do i care anymore lmfao
